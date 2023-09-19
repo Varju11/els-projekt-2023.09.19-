@@ -1,0 +1,2 @@
+# els-projekt-2023.09.19-
+CSŐCSUMICSÁ KÉSZ A PALACSINTA SÜTŐ
